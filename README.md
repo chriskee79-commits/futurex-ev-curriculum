@@ -1,1 +1,0 @@
-# futurex-ev-curriculum
